@@ -1,0 +1,2 @@
+# bigAken6
+blogs
